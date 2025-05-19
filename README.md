@@ -2,7 +2,6 @@
 - 👀 I’m interested in playing badminton.
 - 🌱 I’m currently learning baches in IT.
 - 💞️ I’m looking to collaborate on Various projects.
-- <br>Testing</br>
 - 📫 How to reach me, you can mail me
 - 😄 Pronouns: hml
 - ⚡ Fun fact: curious 
